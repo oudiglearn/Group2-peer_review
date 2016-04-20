@@ -180,4 +180,4 @@ Ridolfo, Jim and Danielle Nicole DeVoss. “Composing for Recomposition: Rhetori
 
 Russo, Julia Levin and Francesca Coppa. “Fan/Remix Video (A Remix).” *Transformative Works and Cultures.* vol. 9 (2012). n. pag. Web. 22 Feb. 2016. 
 
-Scott, Suzanne. “Teaching Transformativity/Transformative Teaching: Fair Use and the Video Essay.” *Cinema Journal Teaching Dossier*, Vol 1:2 (Spring/Summer 		2013). Web. 22 Feb. 2016.
+Scott, Suzanne. “Teaching Transformativity/Transformative Teaching: Fair Use and the Video Essay.” *Cinema Journal Teaching Dossier*, Vol 1:2 (Spring/Summer 2013). Web. 22 Feb. 2016.
